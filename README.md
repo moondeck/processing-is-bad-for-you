@@ -1,3 +1,3 @@
-#FUCK
+# FRICK
 
 sorry for profanity
